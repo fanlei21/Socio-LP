@@ -1,1 +1,1 @@
-Tradeoffs between ecological restoration and agriculture on the Loess Plateau, China
+Agricultural and Socioeconomic Effects of Vegetation Restoration on the Loess Plateau, China
